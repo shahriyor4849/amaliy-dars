@@ -1,0 +1,2 @@
+# amaliy-dars
+amaliy dars
